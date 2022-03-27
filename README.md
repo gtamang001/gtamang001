@@ -1,5 +1,5 @@
 ### Hi there 👋
-🌱 Learn to learn and learn to change 🌱
+🌱 Learn to learn and learn to grow 🌱
 <!--
 **gtamang001/gtamang001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
